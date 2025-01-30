@@ -176,7 +176,7 @@ PornGen Art provides AI-powered tools for artistic and adult-themed photo manipu
 
 ---
 
-## 8. [Deep Nudes Co](https://deepnudes.co/)
+## 8. [Deep Nudes Co](https://deepnudes.co?ref=mzkwzji)
 **Description:**
 Deep Nudes Co is another platform that leverages AI for creative and niche image manipulation. It aims to provide quick results with minimal effort, catering to a specific audience.
 
@@ -197,7 +197,7 @@ Deep Nudes Co is another platform that leverages AI for creative and niche image
 **Rating:**
 ⭐⭐⭐⭐ (4/5)
 
-[Try Deep Nudes Co](https://deepnudes.co/)
+[Try Deep Nudes Co](https://deepnudes.co?ref=mzkwzji)
 
 ---
 
